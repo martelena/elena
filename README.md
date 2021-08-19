@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @martelena
+- 👋 Hi, I’m Elena 
 - 👀 I’m interested in social medias and web communication
 - 🌱 I’m currently learning everything about social medias, web communicatons, public relations....
 - 💞️ I’m looking to collaborate on content creation, web marketing
